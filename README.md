@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DataDan9
+- 👋 Hi, I’m @Sneeky09
 - 👀 I’m interested in video games, football, small businesses :)
 - 🌱 I’m currently learning HTML,CSS & JS
 - 📫 How to reach me daniel@angelicbusiness.co.uk / 07507270291
